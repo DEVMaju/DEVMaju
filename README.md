@@ -9,8 +9,6 @@
 <details>
   <summary>🌠 Mais algumas informações sobre mim 🌠</summary>
 
-
-  
  🌸 Brasileira ~~por enquanto ainda~~ morando no Brasil, 26 anos, Capixaba da gema. No momento não tenho nenhuma experiência profissional, sou uma sementinha germinando e muito determinada para alcançar meus objetivos. Sou muito curiosa e por esse motivo estou sempre pesquisando e lendo sobre tudo, sem deixar de focar nas coisas mais importantes que vão me ajudar a crescer na área que escolhi por vocação. Espero logo mais vir aqui atualizar isso conforme for ganhando experiências e compartilhando para quem passe por aqui e leia.
 
  📽️Eu amo assistir filmes, séries, novelas, desenhos/animes e tudo que tenha histórias realistas ou fantasiosas que envolvam. 
