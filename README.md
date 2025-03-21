@@ -1,4 +1,4 @@
-- 👋 Oiê! Eu me chamo Maria Juliana, ou só **Maju**, como gosto de ser chamada, uma entusiasta muito curiosa na área de **Desenvolvimento Blockchain!**
+- 👋 Oiê! Eu me chamo Maria Juliana, ou só **Maju**, como gosto de ser chamada, uma entusiasta muito curiosa na área de **Desenvolvimento Software!**
  
 - 👀 Tenho um interesse muito aguçado nas áreas de **back-end**, **blockchain** & **cibersegurança**.
  
